@@ -1,1 +1,1 @@
-# jenu_beer_project_23_08_25
+# jeju_beer_project_23_08_25
